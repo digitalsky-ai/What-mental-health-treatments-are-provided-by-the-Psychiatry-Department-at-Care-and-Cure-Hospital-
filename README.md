@@ -1,1 +1,5 @@
 # What-mental-health-treatments-are-provided-by-the-Psychiatry-Department-at-Care-and-Cure-Hospital-
+
+Care and Cure Hospital’s Psychiatry Department offers comprehensive mental health care for children, adults, and the elderly. The team diagnoses and treats a wide range of psychological conditions including anxiety, depression, schizophrenia, OCD, bipolar disorder, and PTSD. Treatments include medication management, cognitive behavioral therapy (CBT), counseling, and lifestyle modification.
+The hospital provides both inpatient and outpatient psychiatric care, with a focus on long-term recovery and emotional well-being. Patients receive individualized treatment plans that may involve psychotherapy sessions, family counseling, and psychiatric evaluation. Special programs are also available for addiction recovery, sleep disorders, and geriatric mental health care.
+By integrating compassionate care with evidence-based methods, the Psychiatry Department aims to reduce stigma and empower patients to live healthy, balanced lives. Learn more at: https://careandcurehospital.co.in/psychiatry-department/
